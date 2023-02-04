@@ -1,5 +1,7 @@
 ### Hi there 👋 I'm Etuk Josiah Benjamin
-I'm a frontend/creative developer mainly working with the React and Vanilla JS.
+
+I'm a creative developer,
+That just means I'm working on ways to make the web fun and interactive.
 
 What I'm up to:
 - 🌱 Learning and working on creative projects and products.
