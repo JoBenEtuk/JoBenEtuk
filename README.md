@@ -1,7 +1,8 @@
-### Hi there 👋 I'm Etuk Josiah Benjamin
+### Hi there 👋  Josiah here
 
-I'm a creative developer,
-That just means I'm working on ways to make the web fun and interactive.
+Creative developer,
+
+Working on ways to make the web fun and interactive.
 
 What I'm up to:
 - 🌱 Learning and working on creative projects and products.
