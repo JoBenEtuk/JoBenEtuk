@@ -1,6 +1,7 @@
 ### Hi there 👋  Josiah here
 
 Developer & Creative director @ [Studio Lumio](https://studiolumio.com/)
+
 Retired Hashira ⚔️
 
 
