@@ -5,7 +5,7 @@ Developer & Creative director @ [Studio Lumio](https://studiolumio.com/)
 Retired Hashira ⚔️
 
 
- Reach me on socials, I do fun stuff sometimes.
+ Follow me on socials, I do fun stuff sometimes.
  
 - [Twitter](https://twitter.com/JoBenEtuk)
 - [Linkedin](https://www.linkedin.com/in/josiah-etuk-8a54a61ba/)
