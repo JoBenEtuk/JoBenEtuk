@@ -2,7 +2,7 @@
 
 Developer & Creative director @ [Studio Lumio](https://studiolumio.com/)
 
-Retired Hashira ⚔️
+Frontend Hashira ⚔️
 
 
  Follow me on socials, I do fun stuff sometimes.
