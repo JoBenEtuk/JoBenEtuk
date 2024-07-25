@@ -2,8 +2,6 @@
 
 Developer & Creative director @ [Studio Lumio](https://studiolumio.com/)
 
-Frontend Hashira ⚔️
-
 
  Follow me on socials, I do fun stuff sometimes.
  
